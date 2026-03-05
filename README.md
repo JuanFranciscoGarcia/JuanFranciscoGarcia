@@ -22,15 +22,15 @@
 **Education**
 
 * **Master’s in Engineering in Industrial Technology and Operations**, Illinois Institute of Technology, Chicago (Expected June 2026).
-* GPA: 4.00 / 4.
+  GPA: 4.00 / 4.
 
 
 * **Master of Science in Industrial Management Engineering**, Universidad Politécnica de Madrid (Expected June 2026).
-* Ranked first in class with Honor Distinctions in Quantitative Finance and Decision Making.
+  Ranked first in class with Honor Distinctions in Quantitative Finance and Decision Making.
 
 
 * **Bachelor of Science in Industrial Management Engineering**, Universidad Politécnica de Madrid (July 2024).
-* Top 3 of class with Honor Distinctions in Electricity Markets and Power Systems.
+  Top 3 of class with Honor Distinctions in Electricity Markets and Power Systems.
 
 
 ---
